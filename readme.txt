@@ -13,3 +13,8 @@
 
 
 我还要飞的更高更高。
+
+
+
+you are beautiful
+you are very good
